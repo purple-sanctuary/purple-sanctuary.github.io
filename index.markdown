@@ -35,6 +35,6 @@ See also [Sanctuary Evanston](https://linktr.ee/SEResources), the corrresponding
 
 ### News about us
 
-[Northwestern organizing group Purple Sanctuary encourages University action against ICE](https://dailynorthwestern.com/2026/10/18/lateststories/northwestern-organizing-group-purple-sanctuary-encourages-university-action-against-ice/), Daily Northwestern, October 18th, 2026.
+[Northwestern organizing group Purple Sanctuary encourages University action against ICE](https://dailynorthwestern.com/2026/10/18/lateststories/northwestern-organizing-group-purple-sanctuary-encourages-university-action-against-ice/), Daily Northwestern, October 18th, 2026. Also available in [Spanish](https://dailynorthwestern.com/2026/10/18/el-diario/purple-sanctuary-motiva-a-la-universidad-a-tomar-accion-contra-ice/).
 
 [Sanctuary Evanston leads practical ICE training, introduces Purple Sanctuary](https://dailynorthwestern.com/2026/04/10/lateststories/sanctuary-evanston-leads-practical-ice-training-introduces-purple-sanctuary/), Daily Northwestern, April 10th, 2026.
