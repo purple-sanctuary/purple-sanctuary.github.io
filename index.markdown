@@ -23,7 +23,7 @@ We have sent letters to President Chiang, Vice President Graham,
 and Vice President Figora laying out the need for ICE policies in line with the policies of other similar universities.
 We created [our petition](https://docs.google.com/document/d/1zGj2_BSQ3qMkEO9cZdLj9209QARVhSSeD5DWHFEFi58/edit)
 after hearing no response.
-Over 250 community members have signed so far.
+Over 300 community members have signed so far.
 
 If you're excited to do more, please [get in touch](mailto:purple-sanctuary@proton.me)! We also have [a flyer](/assets/nu-ice-petition.pdf), which we'd love to have posted on bulletin boards.
 
