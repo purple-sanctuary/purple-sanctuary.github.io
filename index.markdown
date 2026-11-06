@@ -33,8 +33,23 @@ in understanding our rights when ICE enters our community or enters our campus.
 
 See also [Sanctuary Evanston](https://linktr.ee/SEResources), the corrresponding Evanston-wide organization.
 
+### Our letters and writing
+
+[Mehta, Marshall, Graham and Grosof: NU needs protections against ICE](https://dailynorthwestern.com/2026/10/26/opinion/mehta-marshall-graham-and-grosof-nu-needs-protections-against-ice/), Op-Ed in the Daily Northwestern, October 26th, 2026.
+
 ### News about us
+
+[Student groups build coalitions against ICE, call for policy changes](https://dailynorthwestern.com/2026/11/04/campus/student-groups-build-coalitions-against-ice-call-for-policy-changes/), Daily Northwestern, November 4th, 2026.
 
 [Northwestern organizing group Purple Sanctuary encourages University action against ICE](https://dailynorthwestern.com/2026/10/18/lateststories/northwestern-organizing-group-purple-sanctuary-encourages-university-action-against-ice/), Daily Northwestern, October 18th, 2026. Also available in [Spanish](https://dailynorthwestern.com/2026/10/18/el-diario/purple-sanctuary-motiva-a-la-universidad-a-tomar-accion-contra-ice/).
 
 [Sanctuary Evanston leads practical ICE training, introduces Purple Sanctuary](https://dailynorthwestern.com/2026/04/10/lateststories/sanctuary-evanston-leads-practical-ice-training-introduces-purple-sanctuary/), Daily Northwestern, April 10th, 2026.
+
+### Consider donating
+
+NU Alum Ali Slayie (Weinberg '25) was detained by ICE on October 15th, 2026,
+despite his ongoing asylum application and his upcoming court date.
+He is now out on bail, after 3 weeks in a detention center,
+thanks in part to community donations.
+Additional funds are needed for further legal fees.
+News: [NU alum in ICE custody](https://dailynorthwestern.com/2026/10/16/top-stories/nu-alum-in-ice-custody/). Donate: [GoFundMe: Help Ali Slayie Return Home Safely](https://www.gofundme.com/f/help-ali-slayie-return-home-safely).
